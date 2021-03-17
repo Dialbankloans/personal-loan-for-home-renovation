@@ -19,12 +19,11 @@ We have provided with reasons as to why one should avail the option of personal 
 Measures on how to apply for a personal loan for home development-
 
 <p align="justify">The steps are provided down below that will provide enough description regarding applications of personal loans:
-Step 1: Go to the online website of the particular institution which you think is best suited for your purpose.
- Step 2: Go to the personal loan section and check for the application form and fill it with personal, employment, and financial details.
-Step 3: Select loan tenure according to your convenience
- Step 4: Recheck your application and then submit it.
-
- Step 5: wait for the approval for some time and then receive the credit amount within 24 hours.
+Step 1: Go to the online website of the particular institution which you think is best suited for your purpose.<br>
+ Step 2: Go to the personal loan section and check for the application form and fill it with personal, employment, and financial details.<br>
+Step 3: Select loan tenure according to your convenience<br>
+ Step 4: Recheck your application and then submit it.<br>
+ Step 5: wait for the approval for some time and then receive the credit amount within 24 hours.<br>
 <p align="justify">Provided all of this information, another piece of advice that one should consider before applying for a personal loan is a market survey. It is quite important to know which financial institution is providing what kind of facility. If an individual applies for a loan without surveying the market then he might find himself paying more interest rate.
 <h3>Author Bio</h3>
 <p align="justify">Gaurav S. Khurana is the Founder and CEO of Dialabank and has had a great career in the Banking and Financial Services Sector. He has an experience of 18 years in the sector and has worked at Senior Roles including National Sales Head at ING Investment Management India and as the Vice President Citibank. A post-graduate from IMT, Ghaziabad. Gaurav started his career as a Named Account Manager in Xerox.<br>
