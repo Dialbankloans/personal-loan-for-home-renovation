@@ -21,7 +21,7 @@ Measures on how to apply for a personal loan for home development-
 <p align="justify">The steps are provided down below that will provide enough description regarding applications of personal loans:<br>
 <b>Step 1:</b> Go to the online website of the particular institution which you think is best suited for your purpose.<br>
 <b>Step 2:</b> Go to the personal loan section and check for the application form and fill it with personal, employment, and financial details.<br>
-<b>Step 3:<b> Select loan tenure according to your convenience<br>
+<b>Step 3:</b> Select loan tenure according to your convenience<br>
 <b>Step 4:<b> Recheck your application and then submit it.<br>
 <b>Step 5:</b> wait for the approval for some time and then receive the credit amount within 24 hours.<br>
 <p align="justify">Provided all of this information, another piece of advice that one should consider before applying for a personal loan is a market survey. It is quite important to know which financial institution is providing what kind of facility. If an individual applies for a loan without surveying the market then he might find himself paying more interest rate.
